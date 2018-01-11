@@ -1,1 +1,1 @@
-It is a financial tool, the money is put into the money bag, enjoy 10-16 times the interest income of the current deposit, and can also be followed as the current deposit.
+Pocketbook is a nice and simple family accounting software, financial accounting does not require network safer, more simple than the same kind of family financial management software, with accounting of financial happiness as a qualified financial customers, help you develop family financial planning scheme, flexible use of electronic books and the water billing software.
